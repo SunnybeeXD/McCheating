@@ -1,6 +1,6 @@
 # Cheating related Discord servers
 
-# **Paid Clients**
+# Paid Clients
 [**RISE PUBLIC**](https://discord.gg/zNFVd4caQr)
 
 [**LIME CLIENT**](https://discord.gg/kypWc9qzV2)
@@ -15,5 +15,5 @@
 
 [**NOVOLINE.LOL (Ex Novoline@Intent)**](https://discord.gg/e8QhzAKT6h)
 
-#**FREE CLIENTS**
+# FREE CLIENTS
 [**FDPCLIENT**](https://discord.gg/wNddYkCvWB)
