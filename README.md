@@ -1,5 +1,7 @@
 # Cheating related Discord servers
-
+# My server yes
+https://discord.gg/sUDhfZHTn8
+https://discord.gg/acmNEzmsqH (backup)
 # Paid Clients
 [**RISE PUBLIC**](https://discord.gg/zNFVd4caQr)
 
